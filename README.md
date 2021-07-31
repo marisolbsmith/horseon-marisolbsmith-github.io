@@ -1,1 +1,1 @@
-# horseon-marisolbsmith-github.io
+# marisolbsmith.github.io
